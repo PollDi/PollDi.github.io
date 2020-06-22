@@ -11,5 +11,5 @@ Luna Lovegood was born on the 13th of February 1981. She is the daughter of Xeno
 * direct
 * honest
 
-My mum always said
-> Things we lose have a way of coming back to us in the end. If not always in the ways we expect.
+My mum always said:
+> Things we lose have a way of coming back to us in the end If not always in the ways we expect.
